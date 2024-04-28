@@ -3,8 +3,7 @@
 - 🌱 I’m currently learning HTML, python
 - 💞️ I’m looking to collaborate on nowhere
 - 📫 How to reach me chrizled on discord
-
-- 
+ 
 =$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*$*=
 
 <!---
